@@ -5,3 +5,5 @@ Other Fandoms: Honkai Star Rail, Undertale, Deltarune.
 I actually know alot of fandoms, I just forgot the names!!
 
 Mavuitano/Caprisun, Mavulali, Mavunen & Kinilani forever. C+H please, W2I, very friendly!!
+
+[img]https://media.tenor.com/52HJMEuScoEAAAAi/mauv%C5%9Fka.gif[/img]

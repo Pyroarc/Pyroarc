@@ -1,4 +1,4 @@
-Main Fandoms: Genshin Impact, Identity V, Mouthwashing, Pressure, Regretevator, Warrior cats, Dandy's World, Helluva Boss/Hazbin Hotel, Undertale/Underverse/Deltarune, Honkai Star Rail, Forsaken.
+Main Fandoms: Genshin Impact, Honkai Star Rail, Undertale/Underverse/Deltarune, Identity V, Pressure, Regretevator, Warrior cats, Dandy's World, Helluva Boss/Hazbin Hotel, Forsaken, Mouthwashing.
 
 I actually know alot of fandoms, I just forgot names!!
 
